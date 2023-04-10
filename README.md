@@ -1,0 +1,1 @@
+# daily_note_for_fun
